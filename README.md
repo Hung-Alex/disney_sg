@@ -1,1 +1,10 @@
 # disney_sg
+![image](https://user-images.githubusercontent.com/86923113/144359503-14c3fe3d-ff1e-4b29-a5d3-cb9315e1fa7a.png)
+![image](https://user-images.githubusercontent.com/86923113/144359519-11ec8a12-0b89-4c14-b3da-8a5ec4b38ec5.png)
+![image](https://user-images.githubusercontent.com/86923113/144359539-cc4747fa-b590-4467-8d93-508452c888b0.png)
+![image](https://user-images.githubusercontent.com/86923113/144359569-7256b7d4-8751-4696-9323-b9488bac81dd.png)
+![image](https://user-images.githubusercontent.com/86923113/144359594-8f907fc7-a7e7-4703-8b08-1cb47e34acf5.png)
+![image](https://user-images.githubusercontent.com/86923113/144359612-d0213ee1-b5bb-41ab-9df9-4922cae16365.png)
+![image](https://user-images.githubusercontent.com/86923113/144359643-cf9785f7-e286-4a67-81e8-70be30f9d822.png)
+![image](https://user-images.githubusercontent.com/86923113/144359666-2caf9084-f93a-4846-add6-e0e0370ef834.png)
+![Uploading image.png…]()
